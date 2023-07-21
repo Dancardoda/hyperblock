@@ -1,2 +1,0 @@
-# hyperblock
-un curso increible 
